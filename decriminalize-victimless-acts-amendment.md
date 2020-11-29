@@ -1,0 +1,1 @@
+The state legislature shall make no law imposing a criminal or civil penalty on any person in New Hampshire for any act that does not trespass against the person or property of another person, or that does not deprive another person of their property by fraudulent means.
